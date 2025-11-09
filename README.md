@@ -1,6 +1,6 @@
 Team No. 70
 Team members name =>Aditya Singh , Ankit Kumar , Khyati Mathpal , Shailja Shukla
-Video Link :- https://drive.google.com/file/d/1yX4sl8eMCgIwaDBleMJqprXhfG54Z8CN/view?usp=drive_link
+Video Link :- https://drive.google.com/file/d/1TOKGzXbloNhQdwomBVMaPn8eGd_ihjI2/view?usp=sharing
 
 
 
